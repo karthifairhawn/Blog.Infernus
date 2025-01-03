@@ -1,5 +1,3 @@
-
----
 **The Purpose of Life: To Explore**
 
 I believe the purpose of life can be distilled into one essential goal: **exploration**. This exploration takes two forms—**Nature** and **Artificial**—both of which shape our understanding of existence and our place in the universe.
@@ -12,5 +10,3 @@ I believe the purpose of life can be distilled into one essential goal: **explor
     
 
 Life is a journey that invites us to explore both these realms, learning, growing, and contributing as we go. Through this dual exploration, we find meaning, purpose, and a deeper connection to everything around us.
-
----

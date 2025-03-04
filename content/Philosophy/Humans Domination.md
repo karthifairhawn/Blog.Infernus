@@ -12,7 +12,7 @@ All these distributed powers balances the eco system expect one. Yes `The Humans
 **The worst invention ever**
 I always blame the universe for inventing this trashy entity. When these guys are invented they started breaking the eco system. 
 
-The world will be more beautiful without humans in earth. We almost crashed the earth entired behavior. Earth might never had a thought like a small biological entity(humans) can make this much negative impact on her system.
+The world will be more beautiful without humans in earth. We almost crashed the earth entire behavior. Earth might never had a thought like a small biological entity(humans) can make this much negative impact on her system.
 
 
 

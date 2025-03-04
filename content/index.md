@@ -1,4 +1,4 @@
-You can find the most `intellectual` or the most `dumbest` philosophy and experiences here. 
+You can find the most `intellectual` or the `dumbest` blogs here. 
 ## About Me 👾
 
 Hi, I'm a `Human Entity` same as you in the process of trying the possible ways to learn and experience the cosmos and it's philosophy.

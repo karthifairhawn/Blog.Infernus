@@ -9,7 +9,7 @@ In the grand theater of society, everyone seems to play a role. Some are loud, s
 
 Shakespeare once wrote, “All the world’s a stage.” Society functions like an elaborate play. It has heroes, villains, rules, chaos, applause, and criticism. Everyone is invited to act—but not everyone accepts.
 
-Some jump in, driven by ambition, emotion, or responsibility. Others step back—not out of indifference, but out of a deeper curiosity about the play itself.
+Some jump in, driven by ambition, emotion, or responsibility. Others step back—not out of in difference, but out of a deeper curiosity about the play itself.
 
 > Are you playing the role, or are you studying the script?
 
@@ -20,42 +20,27 @@ Some jump in, driven by ambition, emotion, or responsibility. Others step back�
 A _player_ participates. They make decisions, take sides, influence change, and face consequences. Their presence shifts the game in small or big ways.
 
 **Pros of being a player:**
-
 - Influence over outcomes
-    
 - Opportunities to lead or change things
-    
 - A sense of belonging or purpose
-    
-
 **But also:**
-
-- Vulnerability to failure, pressure, judgment
-    
+- Vulnerability to failure, pressure, judgement
 - Risk of getting lost in roles, trends, or crowd thinking
-    
 
 ---
 
 ### **3. The Observer: Detached, Aware, Questioning**
 
-An _observer_ watches. They analyze rather than act. They often look for patterns, causes, and long-term consequences.
+An _observer_ watches. They analyse rather than act. They often look for patterns, causes, and long-term consequences.
 
 **Pros of being an observer:**
-
 - Clarity of thought
-    
 - Less influenced by emotions or peer pressure
-    
 - Time to reflect, understand, and choose
-    
 
 **But also:**
-
 - May feel disconnected or isolated
-    
 - Might miss the lessons that only action can teach
-    
 
 ---
 

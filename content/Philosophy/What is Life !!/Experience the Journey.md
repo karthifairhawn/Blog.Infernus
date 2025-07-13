@@ -60,7 +60,3 @@ Maybe it’s here to be **experienced** — moment by moment, fully, consciously
 
 And if that’s true, then being present, observing, feeling, thinking — that’s not “wasting time.”  
 That’s living.
-
----
-
-Want to tweak any sections or go deeper in a specific area?

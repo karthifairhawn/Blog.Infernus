@@ -45,7 +45,3 @@ But I know I’m not alone in this.
 Maybe I’ll never design a new society. Maybe I’ll just keep asking hard questions. But in a world that runs on blind belief in broken systems, even doubt is a form of contribution.
 
 > I question the current construct not because I hate it, but because I still believe we can do better.
-
----
-
-Want to post this as a standalone blog or as a continuation of the previous one? I can help fine-tune it with your voice.

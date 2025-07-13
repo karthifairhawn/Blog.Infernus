@@ -1,22 +1,23 @@
 ![[Pasted image 20250415183247.png]]
-Hey, I’m Karthi. A engineer, tech enthusiast, researcher, and someone who enjoys observing and experiencing life. This blog is my personal junkyard of thoughts—mostly for self-reflection, sometimes to share knowledge, but mainly just because I like documenting things.
+Hey, I’m Karthi. A engineer, techie, aspirant athlete and someone who enjoys observing and experiencing life. `Thats a simple one liner about me`
 
-I write about whatever interests me—philosophy, software development, rockets, space science, conspiracy theories, life experiences, and the occasional contradiction that keeps things interesting. My approach? A mix of reasoning and emotions, because I believe both drive us. Survival is a necessity, but life is about love—the most valuable feeling. I see the purpose of life as simple: to love and to be loved, and to make survival enjoyable along the way.
+**Why this blog?**
+From childhood Itself I always try to log things in someway because I have fear of forgetting things. I still remember a day on that time i was doing 8th grade and I'm writing about gorillas in my last paper of maths note while watching NatGeo wild. 
 
-A few things about me:
+I'm poor in memory power, I score very low marks, I think that top scoring students are scamming in some way that I don't. 
 
-- I spent random nights on stargazing.
-- I do games for 12-16 hours straight. No regrets.
-- Tea and Cake Pudding? The ultimate combo. 
-- Jogging and Meditation gives me peace and satisfaction like nothing else.
-- I often contradict my own points more than arguing with others—it’s how I learn.
-- I'm trying hard to  understand the world and ideas better. I don’t care about taking sides or judgements; learning is my only objective.
+You got the point right I like to have more stuff in brain but it comes with a low size SDD so I started using external storage.
 
-I believe that every moment influences me—even this very second. I never think I know something completely, and I’m always open to being influenced, as long as there's proper reasoning behind it. I naturally connect with all kinds of people, even those whose traits I dislike, because I genuinely love learning.
+So possibly you got the point, I'm writing things  just to remember my thought processes and experiences forever.  I'm trying my maximum possible ways to log things that my brain process everyday. 
 
-If my life were a book, I’d call it:  
-**"Wandering Thoughts: A Mind with No Destination."**
+**Do check out my other ways of logging things..**
+- Asphalt Diaries - Travel Vlog
+- Warrior Sword - Gaming 
 
-This blog doesn’t exist to teach or convince—it’s just a space for my thoughts to exist. Experience the world and its contradictions.
 
-Welcome to **A Dumb Person’s Junkyard**—take what you need, leave what you don’t.
+
+
+
+
+
+

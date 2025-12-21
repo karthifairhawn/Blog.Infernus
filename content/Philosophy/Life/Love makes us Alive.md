@@ -1,5 +1,3 @@
-# **Life is the Canvas, Love is the Color**
-
 ## **1. Introduction – A Blank Canvas for Everyone**
 
 From the moment we’re born, life hands us a canvas — blank, open, and undefined.

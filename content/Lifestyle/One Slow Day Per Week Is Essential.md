@@ -1,5 +1,3 @@
-## **One Slow Day Per Week Is Essential**
-
 ### **The Quiet Rebellion**
 
 There’s something quietly rebellious about slowing down. In a world where momentum is mistaken for meaning, choosing stillness isn’t just rare—it’s almost taboo. But I believe that one slow day each week isn’t a luxury. It’s essential. Like the breath between words, the silence in music, the pause between thoughts.

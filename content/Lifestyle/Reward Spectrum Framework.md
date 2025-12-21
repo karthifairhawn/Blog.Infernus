@@ -37,11 +37,3 @@ We view hobbies on a **spectrum of internal vs external reward**:
 | **Low-reward only**    | Isolation, stagnation, apathy                    |
 | **Medium-reward only** | Plateauing, lack of growth or inner depth        |
 | **High-reward only**   | Burnout, dependency on stimulation or validation |
-
----
-### **5. Core Insight**
-
-> **“Low-reward hobbies shape your soul.  
-> High-reward hobbies project your story.”**
-
-Master both, and you’re both still and unstoppable.

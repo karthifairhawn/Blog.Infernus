@@ -1,23 +1,24 @@
-![[Pasted image 20250415183247.png]]
-Hey, I’m Karthi. A engineer, techie, aspirant athlete and someone who enjoys observing and experiencing life. `Thats a simple one liner about me`
+## TL;DR Fragments from a curious, unfinished mind.
 
-**Why this blog?**
-From childhood Itself I always try to log things in someway because I have fear of forgetting things. I still remember a day on that time i was doing 8th grade and I'm writing about gorillas in my last paper of maths note while watching NatGeo wild. 
+### **Who am I?**
+From a philosophical standpoint, I am still trying to answer this question. Self-discovery feels harder than any formal research.
 
-I'm poor in memory power, I score very low marks, I think that top scoring students are scamming in some way that I don't. 
+For now, the simplest answer is this: I am a generalist someone who explores different domains that challenge how I think and live. I have depth in engineering and work as a software engineer by profession, but I don’t confine my curiosity to a single field.
 
-You got the point right I like to have more stuff in brain but it comes with a low size SDD so I started using external storage.
+I spend a lot of time learning across ideas, systems, philosophy, and abstractions. My writing probably explains me better than any fixed definition ever could.
 
-So possibly you got the point, I'm writing things  just to remember my thought processes and experiences forever.  I'm trying my maximum possible ways to log things that my brain process everyday. 
+And You can call me *Karthi*.
 
-**Do check out my other ways of logging things..**
-- Asphalt Diaries - Travel Vlog
-- Warrior Sword - Gaming 
+Thanks for being here. Happy reading.
+### **Why do I write?**
 
+Writing, for me, is a form of self-reflection and mental exploration. It helps me observe my own thought process more clearly.
 
+Most of the time, I don’t revisit what I write after publishing it. Because of that, you may find rough edges, contradictions, or unfinished ideas. That’s intentional. These posts are snapshots of thinking in motion not polished conclusions.
 
+I also use AI to help improve clarity and language. I don’t see it as outsourcing thought, but as a tool to translate what’s in my head onto the page more precisely.e
+### **What does my writing contain?**
 
+These writings are a collection of reflections, questions, and mental experiments. Topics may appear scattered
 
-
-
-
+This blog isn’t about answers. It’s about thinking honestly in public.

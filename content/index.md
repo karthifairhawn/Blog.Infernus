@@ -1,3 +1,4 @@
+# **About Me**
 ## TL;DR Fragments from a curious, unfinished mind.
 
 ### **Who am I?**
@@ -16,7 +17,7 @@ Writing, for me, is a form of self-reflection and mental exploration. It helps m
 
 Most of the time, I don’t revisit what I write after publishing it. Because of that, you may find rough edges, contradictions, or unfinished ideas. That’s intentional. These posts are snapshots of thinking in motion not polished conclusions.
 
-I also use AI to help improve clarity and language. I don’t see it as outsourcing thought, but as a tool to translate what’s in my head onto the page more precisely.e
+I also use AI to help improve clarity and language. I don’t see it as outsourcing thought, but as a tool to translate what’s in my head onto the paper more precisely.
 ### **What does my writing contain?**
 
 These writings are a collection of reflections, questions, and mental experiments. Topics may appear scattered

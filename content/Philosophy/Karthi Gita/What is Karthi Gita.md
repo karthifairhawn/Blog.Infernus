@@ -1,0 +1,6 @@
+In 2026, I really want to write a book, I've set it as one of goals of 2026. When I think what I can write a book about. I can't find any good domains. Because In all domains. I am a student. As a student I can only do half baked book in any domain, I really hate the idea of selling half baked contents this is the only reason I stopped YouTube.
+
+That's an interesting story lemme tell you, I know there were no good computer education YouTube channels available in Tamil. So I started one like 6 years back I guess not sure, It went very well I reached 2.5k around subs. Good hygiene subscribers. Thats were problem started, I cant put any half baked contents on YouTube after this. If I did so means I am putting wrong content on 2500 peoples mind. So I tried to research more and more of every topic and my life style and college and gaming routine haven't supported that much effort. So then I quit YouTube, I tried to do a come back but I have failed successfully. Atleast I don't have regret for that.
+
+**What about the Book now then ?**
+((Draft...))

@@ -11,9 +11,9 @@
 அமர்ந்து பேசும் மரங்களின் நிழலும் உன்னை கேட்கும் எப்படி சொல்வேன் உதிர்ந்து போன மலரின் மௌனமா.
 
 - Na Muthu Kumar.
-
-Highly relatable one for me, I have so many things that asks me where is she ? When I get to them. 
 ```
 
-
+```
+Just a leaf talking to a flower hoping they could be part of the same stem. - unknown
+```
 

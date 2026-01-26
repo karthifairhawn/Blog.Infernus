@@ -53,7 +53,7 @@ Like the above arts, I do have some of few other arts, I've painted a beer bottl
 > Gemman Philosopher: Arthur Schopenhauer
 
 He said, I cant recollect his exact saying but the thing is  
-> In this world we are driven by a force calle "Will", And we can escape it. In the escape process is art is a tool.
+> In this world we are driven by a force called "Will", And we can escape it. In the escape process is art is a tool.
 
 I've invloved in various ART process and later i realised there is where I felt the life meaningfull, complete and I really enjoyed it.
 

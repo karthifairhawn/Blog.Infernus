@@ -1,0 +1,7 @@
+In 2026, I really want to write a book, I've set it as one of goals of 2026. I don't know how to write a book and how to explain things in texts very well, Obviously It is going to be very challenging task for me. I have read very few books in my life, Hopefull I assume those books will guide me on how to do things.
+
+This book is more about life. For the past 2 years I have researched a lot about nihilism and existential crisis. Mostly because for myself. Whenever I face those I like to learn more about them and that is how I was into philosophy. 
+
+Over time in the phase of learning philosophy the fact that "nothing has universal meaning!" felt really convincing for me, But I also understood everyone is living this life somehow, So I started looking into people about how they find meaning in the meaningless universe. And that is interesting because if you want to understand some one's driving force of life (Camus called this 'will') you have to understand their personality. For some people it will be very easy, for some it will be very hard. But I tried my best observing people and their patterns to understand the 'will' behind their life.
+
+I really like the idea of abstracting things, So I wanted to abstract those 'will' of people I saw into a framework of my language and that is what we can see in this book - untitled.book.

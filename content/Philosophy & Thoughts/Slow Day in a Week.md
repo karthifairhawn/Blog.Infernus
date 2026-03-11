@@ -1,3 +1,7 @@
+### Backstory
+I used to have urge to spend my time very productively in my college days, My sort of definition changes for "what is productivity?" yea I call playing video game 24/7 is productive. Kinda funny right yea. May be it is "I like high rewarding task ? ". No not like that, Thats why i told my definition is like diffierent.
+
+
 ### **The Quiet Rebellion**
 
 There’s something quietly rebellious about slowing down. In a world where momentum is mistaken for meaning, choosing stillness isn’t just rare it’s almost taboo. But I believe that one slow day each week isn’t a luxury. It’s essential. Like the breath between words, the silence in music, the pause between thoughts. Thats weekend is for huh hehehe.

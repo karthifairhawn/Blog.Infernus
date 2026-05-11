@@ -35,10 +35,10 @@ Maybe creation doesn’t need to be constant to be meaningful.
 
 Some art exists simply to remind us that we once stepped outside the noise—and felt whole.
 
-
-
 In the above context I really like [this](https://www.yasminacreates.com/) artist sayings,
 "My other passion is showing you that YOU TOO CAN CREATE!" Isn't that very powerfull lines ? I liked it a lot.
+
+Final Sayings: Create some art
 
 --- 
 ---

@@ -1,0 +1,5 @@
+The Maya civilization was a Mesoamerican civilization that existed from antiquity to the early modern period. Known by its ancient temples and glyphs (script), the civilization is also noted for its art, architecture, mathematics, calendar, and astronomical system.
+
+I was admired particularly by Maya's architecture and culture and was pulled to study the civilization because end of that civilization is a mystery and research shows that it is because of poor water management as it is located in tropical rain forest shortage of water in summer times destroyed the civilization.
+
+Still it is just research and no one single answer there which makes a conclusion to their end. But luckily the civilization is not dead but migrated from their root because of survival. What made the migration is mystery here.
